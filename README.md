@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tebsyo
-- 👀 I’m interested in wathing mysterys
+- 👀 I’m interested in watching mysterys
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing much
 - 📫 How to reach me here
